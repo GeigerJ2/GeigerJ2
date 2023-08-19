@@ -7,6 +7,5 @@ Let me introduce myself:
 ⚗️ Working with DFT  
 🔭 I have a passion for science  
 🧑‍💻 And enjoy my coding journey  
-
 ❔ And what about you  
 ✨ Feel free to connect
